@@ -1,0 +1,1 @@
+# app-haruy-sushi-mobile
